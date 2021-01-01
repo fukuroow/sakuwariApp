@@ -1,2 +1,2 @@
-# さくわりのprivacy policy
+# sakuwari's privacy policy
  
