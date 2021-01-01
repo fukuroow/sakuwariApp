@@ -1,0 +1,2 @@
+# さくわりのprivacy policy
+ 
